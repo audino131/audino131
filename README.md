@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @audino131 
+- 🌱 I’m currently learning in high school
+- 📫 How to reach me : Telegram - "@winter713"
+- 😄 Pronouns: he, him, his
+- ⚡ Fun fact: I'm developing my own custom rom based on Android
